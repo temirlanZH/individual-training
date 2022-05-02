@@ -17,6 +17,7 @@ https://www.atlassian.com/
 https://www.template.net/
 https://fs.blog/feynman-technique/
 https://libguides.mit.edu/
+https://www.profilesasiapacific.com/
 # And there are several videos for individual training:
 https://i.ytimg.com/an_webp/ZbjjwgiVQKk/mqdefault_6s.webp?du=3000&sqp=CPP1vJMG&rs=AOn4CLAMvS_nuBKFRXe6g-khA1YK0CAU6A
 https://i.ytimg.com/an_webp/mtYahZhsy0M/mqdefault_6s.webp?du=3000&sqp=CLu2vZMG&rs=AOn4CLCLorJX-PhUsE5Jgs0qEVX9z971gg
