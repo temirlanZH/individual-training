@@ -1,6 +1,3 @@
-# individual-training
-Practice Makes Perfect And Individual training!
-
 # Individual Training
 Individual training or one-on-one training is typically the process of using a mentor or coach to teach a specific skill or behavior to an individual, to coach them, or to work on development on a one-on-one basis.
 
