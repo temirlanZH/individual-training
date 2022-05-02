@@ -27,6 +27,7 @@ https://i.ytimg.com/an_webp/UTTAebnKwjE/mqdefault_6s.webp?du=3000&sqp=CJ67vZMG&r
 https://i.ytimg.com/an_webp/-TpRtD6Nqfc/mqdefault_6s.webp?du=3000&sqp=CKi4vZMG&rs=AOn4CLAx_USSTsyhuJhcRc2Hkpv1KjhpDA
 
 # The Best Books for Personal Trainers in 2022
+![BestBooks_Feature](https://user-images.githubusercontent.com/86709653/166185999-ad350f99-1fbe-445d-9821-288c49e7cc22.png)
 ## Ignite the Fire: The Secrets to Building a Successful Personal Training Career — Jonathan Goodman
 
 Ignite provides a clear road map to starting your personal training career, building your clientele, establishing your reputation, and boosting your income. This book has 1,000+ 5-star reviews and is also available in both Spanish and Chinese.
@@ -51,8 +52,7 @@ The cofounder of Precision Nutrition (and friend of the PTDC) has achieved pheno
 
 Most clients want the same basic goals (look better, perform better, feel and move better), which means your next client’s program should be mostly ready for them before they even walk in the door. “Making something different just for the sake of being different is in fact bad programming,” Cosgrove and Rasmussen write. This comprehensive guide shows you how to create the templates and apply them to each client, based on their goal, training status, and time frame.  
 
-![BestBooks_Feature](https://user-images.githubusercontent.com/86709653/166185999-ad350f99-1fbe-445d-9821-288c49e7cc22.png)
-
+# ----------------------------
 
 ![photo_2022-05-02_02-49-56](https://user-images.githubusercontent.com/86709653/166164277-d6b917dd-a890-4fed-b3d5-99e205b88d4b.jpg)
 ![photo_2022-05-02_02-49-58](https://user-images.githubusercontent.com/86709653/166164278-ff3afa56-6805-4c93-ab75-0cd090750421.jpg)
